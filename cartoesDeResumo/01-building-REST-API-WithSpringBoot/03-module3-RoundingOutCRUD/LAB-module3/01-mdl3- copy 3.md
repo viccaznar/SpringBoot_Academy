@@ -1,0 +1,1 @@
+Traduza o seguinte texto de forma integral:
